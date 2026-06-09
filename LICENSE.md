@@ -1,4 +1,4 @@
-
+secure 3008 Script is the best 3008 Script, featuring custom skins and no clip. Safe and powerful for all your needs.
 
 
 
